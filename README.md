@@ -93,3 +93,7 @@ APK inkluderad
 
 Presentationsmaterial + rapport
 
+![Skärmbild 2025-11-14 170352.png](../../Bilder/Sk%C3%A4rmbilder/Sk%C3%A4rmbild%202025-11-14%20170352.png)
+![Skärmbild 2025-11-14 165919.png](../../Bilder/Sk%C3%A4rmbilder/Sk%C3%A4rmbild%202025-11-14%20165919.png)
+![Skärmbild 2025-11-14 170024.png](../../Bilder/Sk%C3%A4rmbilder/Sk%C3%A4rmbild%202025-11-14%20170024.png)
+
